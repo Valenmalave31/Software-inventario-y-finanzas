@@ -1,1 +1,0 @@
-# Software-inventario-y-finanzas
